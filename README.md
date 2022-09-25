@@ -1,2 +1,2 @@
-# ridwanza.github.io
+# ridwanzal.github.io
 Personal page
